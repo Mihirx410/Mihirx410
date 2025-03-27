@@ -3,7 +3,7 @@
 
 - 🚀 Professioanl Web Developer and Graphic Designer<br/> 
 - 👯 I’m looking to collaborate on Web Development and Designing<br/>
-- 📫 How to reach me: ([https://www.instagram.com/_mihir.dodiya_](https://www.instagram.com/mihir.dodiya?igsh=MWlqN3ZpOHY5ZzA1MQ==))<br/>
+- 📫 How to reach me: ([https://www.instagram.com/_mihir.dodiya_](https://www.instagram.com/_mihir.dodiya_?igsh=MWlqN3ZpOHY5ZzA1MQ==))<br/>
 - ⚡ Fun fact: Life is unfair
 
 
